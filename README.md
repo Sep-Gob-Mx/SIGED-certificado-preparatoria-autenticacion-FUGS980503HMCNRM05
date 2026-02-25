@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FUGS980503HMCNRM05
+FUGS980503HMCNRM05
